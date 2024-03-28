@@ -7,4 +7,8 @@
 𝐀𝐬 𝐬𝐨𝐨𝐧 𝐚𝐬 𝐬𝐡𝐞 𝐛𝐞𝐜𝐚𝐦𝐞 𝐚𝐰𝐚𝐫𝐞 𝐭𝐡𝐚𝐭 𝐢𝐭 𝐰𝐚𝐬 𝐚𝐧 𝐢𝐥𝐥𝐮𝐬𝐢𝐨𝐧, 𝐬𝐡𝐞 𝐧𝐨𝐭𝐢𝐜𝐞𝐝 𝐚 𝐦𝐚𝐧 𝐢𝐧 𝐭𝐡𝐞 𝐛𝐚𝐜𝐤𝐲𝐚𝐫𝐝 𝐡𝐨𝐥𝐝𝐢𝐧𝐠 𝐬𝐨𝐦𝐞𝐭𝐡𝐢𝐧𝐠 𝐭𝐡𝐚𝐭 𝐰𝐚𝐬 𝐝𝐫𝐢𝐩𝐩𝐢𝐧𝐠.
 
 𝐒𝐡𝐞 𝐚𝐥𝐦𝐨𝐬𝐭 𝐟𝐞𝐥𝐥 𝐮𝐧𝐜𝐨𝐧𝐬𝐜𝐢𝐨𝐮𝐬 𝐰𝐡𝐞𝐧 𝐬𝐡𝐞 𝐫𝐞𝐚𝐥𝐢𝐳𝐞𝐝 𝐭𝐡𝐚𝐭 𝐭𝐡𝐞 𝐝𝐫𝐢𝐩𝐩𝐢𝐧𝐠 𝐨𝐛𝐣𝐞𝐜𝐭 𝐰𝐚𝐬...
- ### 𝐚 𝐡𝐮𝐦𝐚𝐧 𝐚𝐫𝐦!
+### 𝐚 𝐡𝐮𝐦𝐚𝐧 𝐚𝐫𝐦!
+
+
+# Les Légendes de la Mer Infinie
+Sur les vastes étendues de l'océan, un équipage de *pirates* intrépides embarque à bord d'un navire légendaire, le **Mercurial**. Menés par un capitaine au chapeau de paille, ils voguent à la recherche du trésor ultime, caché dans les profondeurs de la mer. Au fil de leur périple, …
